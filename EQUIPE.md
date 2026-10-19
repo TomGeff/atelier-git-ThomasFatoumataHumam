@@ -6,4 +6,4 @@
 | collab-2 | ALTOUKHI Humam | humamT |
 | collab-3 | BATOULY Fatoumata Ba | Fatouata-w |
 
-Date de l'atelier : 19/10/2006
+Date de l'atelier : 19/10/2026
